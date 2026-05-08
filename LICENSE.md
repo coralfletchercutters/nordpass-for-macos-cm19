@@ -1,4 +1,4 @@
-
+NordPass for macOS elite Addon: vulnerability-scanner & encryption is the best NordPass for macOS addon, featuring vulnerability-scanner and encryption. Secure, efficient, and
 
 
 
